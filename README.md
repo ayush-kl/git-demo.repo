@@ -16,7 +16,8 @@ Currently I am pursuing my B.Tech degree in Electronics and Electrical Engineeri
 I belong to Bahraich, Uttar Pradesh. 
 My hobby is to play Table Tennis , badminton and to explore new things. 
 Talking sarcastically with my friends has now became a part of my life.
-During free time I use to scroll instagram reels and watch movies. 
+During free time I use to scroll instagram reels and watch movies.
+yes completed.
 
 instagram ID -  https://instagram.com/mr__ayush__lohia_?igshid=OTk0YzhjMDVlZA==
 
